@@ -11,5 +11,5 @@ With a career spanning over 25 years, my portfolio is as diversified as my exper
 * Web Design work
 * Mobile Application Development & Design				            
 * Pre-print & Logo Design
-* Apparel
+* Apparel Designs
 * Murals
